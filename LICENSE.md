@@ -1,4 +1,4 @@
-
+Bear for macOS best Extension - multi-device sync and quick search offers the most advanced Bear for macOS extension, with multi-device sync and quick search. Ideal for
 
 
 
